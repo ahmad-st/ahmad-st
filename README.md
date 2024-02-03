@@ -1,4 +1,4 @@
-[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://rishavchanda.io)
+[![MasterHead](https://www.shutterstock.com/image-vector/palestine-independence-day-abstract-banner-260nw-2356401641.jpg)](https://ahmad-st.io)
 <h1 align="center">Hi 👋, I'm Ahmad Setiyanto</h1>
 <h3 align="center">A newbie and passionate web developer from Indonesia</h3>
 
